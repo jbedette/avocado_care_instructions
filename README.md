@@ -34,7 +34,7 @@
 2. [Insert](https://www.avocadogreenmattress.com/products/best-luxury-down-duvet-insert?_pos=2&_psq=down+d&_ss=e&_v=1.0)
     - CARE:
 
-    **Spot Clean Only.*** For small stains, spot cleaning with a mild detergent and water can be effective. Gently work on the stain and rinse the area thoroughly to remove any soap residue. Ensure the cleaned area is fully dry before using or storing the duvet. We suggest giving your duvet a good shake and fluffing it up about once a week or each time you change your sheets to ensure the down filling remains evenly distributed. The down is washed and cleaned with Allernon-21 Ultrafresh® technology (EPA registered & OEKO-TEX® listed) to help remove any allergens and keep the down smelling fresh and clean.
+    **Spot Clean Only.** For small stains, spot cleaning with a mild detergent and water can be effective. Gently work on the stain and rinse the area thoroughly to remove any soap residue. Ensure the cleaned area is fully dry before using or storing the duvet. We suggest giving your duvet a good shake and fluffing it up about once a week or each time you change your sheets to ensure the down filling remains evenly distributed. The down is washed and cleaned with Allernon-21 Ultrafresh® technology (EPA registered & OEKO-TEX® listed) to help remove any allergens and keep the down smelling fresh and clean.
 
 ### WEDGE
 1. [Wedge Cover](https://www.avocadogreenmattress.com/products/organic-latex-wedge-pillow?_pos=1&_psq=organiz+latex+w&_ss=e&_v=1.0)
